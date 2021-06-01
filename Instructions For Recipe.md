@@ -1,0 +1,5 @@
+# **<u>The Secret of the Recipe!</u>**
+
+1. Bring a large pot of water with a big pinch of salt to a boil. Cook noodles according to package directions. Reserve 1 ½ cups of water for the sauce and then drain noodles. Keep the pot handy.
+2. Meanwhile, heat oil over medium heat in a large skillet with a lid. Once hot, add mushrooms plus a pinch of salt and pepper and sauté for 5 minutes. Add tomatoes and sauté for another 3 minutes. Add asparagus and cover pan for about 5 minutes, or until asparagus is crisp tender.
+3. Remove lid and add kale, cooking for a couple minutes or until wilted. Stir in peas. Transfer veggies to the pasta pot and add back in the pasta along with hummus, 1 cup pasta water, lemon juice, salt, and pepper to taste. Stir and add more pasta water if needed to get a sauce consistency. Mix into a creamy bowl of pasta! Serve it to your desperately waiting tongue!
